@@ -1,1 +1,0 @@
-# JihoonLim_code_practice
